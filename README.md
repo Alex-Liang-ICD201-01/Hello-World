@@ -1,1 +1,2 @@
-# Hello-World
+# A plane crashes at the border of The United States and Canada, where do you bury the survivors? Answer = ?
+# "What has hands but cannot clap; however also has a face that cannot frown." This message is flagged to be decrypted using the 'skipping around' method: Example the code is 'skip 5', so you are to skip 5 words and read the 6th word continuosly to find the decrypted message. Code: Skip 3. TWo lEvels are what creates a totaL time of V or is the timE really it 'v'. The minutes read 7^2-7. What is the answer to this riddle?
